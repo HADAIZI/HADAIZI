@@ -1,4 +1,4 @@
--  Hi, I’m @HADAIZI  
+-  Hi, I’m Adam Haidar Azizi  
 -  I’m interested in UI/UX
 -  I’m studying in ITS
 -  How to reach me adamhadaizi2002@gmail.com
